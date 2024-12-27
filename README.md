@@ -1,0 +1,2 @@
+# Psixologiya
+Psixologiyadan mustaqil talim 
